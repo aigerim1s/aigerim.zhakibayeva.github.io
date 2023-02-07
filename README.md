@@ -1,1 +1,1 @@
-# aigerim.zhakibayeva.github.io
+# aigerimZhakibayeva.github.io
